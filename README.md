@@ -1,4 +1,4 @@
-<img src="https://media1.tenor.com/m/S42RUQ9XJeEAAAAC/back-to-the-future-disappearance.gif">
+<img src="https://tenor.com/bBHUp.gif">
 
-Hi im fox or relixyr   
-he / she masc terms
+Hi im Billie or relixyr   
+he / she masc / fem terms
