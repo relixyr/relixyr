@@ -1,4 +1,4 @@
-<img src="https://media1.tenor.com/m/IeWx5szdF50AAAAd/billie-eilish-billie.gif">
+<img src="https://media.tenor.com/-1vsLragr3AAAAAj/mlp-applejack.gif">
 
 hi im billie // relixyr   
 he / she , masc / fem terms
