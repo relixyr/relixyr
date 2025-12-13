@@ -10,5 +10,7 @@ WHISPER 2 INTERACT ALWAYS !!!
 
 BYI - i will probaly be awkward if i'm in a bad mood but feel free to int always !
 everypony is welcome to int . js don't be a jackass ..
+
 i LOVE c+h !!! if you want 2 sit with me so don't be shy to ask :D
+
 ^^please note i might not see your message but that rarely happens !
