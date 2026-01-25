@@ -9,8 +9,4 @@ she / he / hy ,  masc / fem terms
 WHISPER 2 INTERACT ALWAYS !!!
 
 BYI - i will probaly be awkward if i'm in a bad mood but feel free to int always !
-everypony is welcome to int . js don't be a jackass ..
-
-i LOVE c+h !!! don't be shy to ask if you'd like 2 sit with me :D
-
-^^please note i might not see your message but that rarely happens !
+everypony is welcome to int n sit with me . js don't be a jackass ..
