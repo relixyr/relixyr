@@ -1,9 +1,9 @@
-<img src="https://media.tenor.com/WlnYt5VXPMcAAAAj/tiger-rubbing.gif">
+<img src="https://i.pinimg.com/1200x/65/04/90/650490c85605b3490deaa44441b8ecda.jpg">
 
 fox // raine   
 she / he / hy ,  masc / fem terms
 
-<img src="https://64.media.tumblr.com/5cbea142eb310cec939f2b92050f6037/d380fff22bb5d32d-1a/s2048x3072/ce981995f0b56f69554ddf69978a169586578853.pnj">
+<img src="https://64.media.tumblr.com/ec775995adad46c5e24cca3a6c26622e/e37713968bf4c620-92/s2048x3072/a126558fc085a516f6b9bab8cd0fbeff6d55528f.pnj">
 
 
 WHISPER 2 INTERACT ALWAYS !!!
